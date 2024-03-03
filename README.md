@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on AI
-- 📫 How to reach me - You can drop an email to me at nishant_saksena@yahoo.com
+- 📫 How to reach me - You can drop an at nishant_saksena@yahoo.com
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: I like video games and talk about them all the time
 
