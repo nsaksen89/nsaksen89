@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on AI
 - 📫 How to reach me - You can drop an at nishant_saksena@yahoo.com
 - 😄 Pronouns: He/Him/His
-- ⚡ Fun fact: I like video games and talk about them all the time
+- ⚡ Fun fact: I like video games and can talk about them all the time
 
 <!---
 nsaksen89/nsaksen89 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
